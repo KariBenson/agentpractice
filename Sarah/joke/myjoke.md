@@ -1,2 +1,2 @@
-What do you call a fish with no eyes?
+What do you call a fake noodle?
 
